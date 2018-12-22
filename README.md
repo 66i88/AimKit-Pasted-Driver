@@ -1,2 +1,2 @@
 # AimKit-Pasted-Driver
-The BlackBone paste that GreenTea denies he pasted
+The BlackBone + Chinese spoofer paste that GreenTea denied. AimKit is a scam. GreenTea is a fraud. Don't waste your money.
